@@ -1,2 +1,1 @@
-![](https://files.catbox.moe/gxyj04.webp) ![](https://files.catbox.moe/s6l405.webp)
-the day i saw eternal sugar, ik damn well she'll be my fav 💔💔
+![](https://files.catbox.moe/gxyj04.webp) ![](https://files.catbox.moe/s6l405.webp) ![](https://files.catbox.moe/9bt183.webp) ![](https://files.catbox.moe/m96ln9.webp)
