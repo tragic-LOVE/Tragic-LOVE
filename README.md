@@ -1,2 +1,2 @@
 my kins 
-k[ins](patreon.com/Redillness)
+[k](patreon.com/Redillness)ins
