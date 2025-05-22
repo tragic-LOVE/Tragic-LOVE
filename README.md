@@ -1,1 +1,2 @@
-" all this hatred and anger was once love and forgiveness."
+my kins 
+k[ins](patreon.com/Redillness)
